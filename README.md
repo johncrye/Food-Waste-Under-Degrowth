@@ -1,1 +1,1 @@
-# Food-Waste-Under-Degrowth
+# Food Waste Term Paper
